@@ -1,2 +1,0 @@
-# **Test**
-You're probably also getting your finances in order, whether it be opening a 529 college savings plan or purchasing life insurance coverage. But your first step as an expecting parent should be developing the right health insurance strategy. Maternity coverage and your baby-to-be’s care are likely some of the biggest health care expenses you'll have. And those costs can be massive without an adequate in-network policy. If you're uninsured, costs for both vaginal and C-section births can range anywhere from $30,000 to $50,000.
